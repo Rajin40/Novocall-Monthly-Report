@@ -1,4 +1,1 @@
 # Novocall-Monthly-Report
-
-By following the insights we analysed that the company NOVOCALL's monthly performance from January to December is average . In  us month February the company spent 814.8$ and their revenue is 1248$ . So that is good performance for the monthly revenue as they spent . But not so high . In next months their revenue is not so good as February . But they are not in loss . In August to October they are in loss and spent money . In November and December they again started to earn revenue . So we can say that their spent rate is good but not so high as website clicks and impressions . But they also need to increase website clicks and impressions by modifying their strategy . 
-Because strategy is the main concept for growing . We recommend that they should modify their strategy and focus in their sells growth 
